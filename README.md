@@ -1,3 +1,4 @@
 ## PRESENTACION 
-Soy Andres Gutierrez, vivo en zarate y tengo 22 años
+Soy Andres Gutierrez, vivo en zarate tengo 22 años y estoy en 2do año de la carrera de Ingenieria en Sistemas de Información.
+Disfruto pasar tiempo con mis amigos y hacer deporte.
 
